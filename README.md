@@ -1,0 +1,1 @@
+# yasuoman.github.io
